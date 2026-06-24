@@ -2,6 +2,6 @@
 fgdhvbjvnk
 n gknvhv
 'ghobgb0ihn blnjgig
-, govjhygvbm vlnop kgp7grugjn  ';l/
+, govjhygvbm vlnop kgp7grugjn  ';
 n giuoh9R"ghbjmn kg
 iefjngv viluygv mgjtyp;e  rtfo;vjmytkb
